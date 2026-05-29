@@ -1,2 +1,2 @@
 # Offer-
-Offer - Stellaraa  Edutech Pvt. Ltd. | Action  Required
+Offer - Stellaraa  Edutech Pvt. Ltd.
